@@ -1,1 +1,0 @@
-https://AnnaSmolkina.github.io/rsschool-cv/cv
