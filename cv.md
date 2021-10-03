@@ -1,4 +1,4 @@
-![foto](/images/AnnaSmolkina.jpg)
+![foto](/images.AnnaSmolkina.jpg)
 
 # Anna Smolkina
 
